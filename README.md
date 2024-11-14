@@ -1,0 +1,5 @@
+- Hi, I’m @MrO365
+- I’m interested in learning everything I can.
+- I’m currently learning to program.
+- I’m looking to collaborate on innovation projects.
+- Fun fact I trully like videogames. :)
